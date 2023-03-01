@@ -1,1 +1,0 @@
-# bakipasa.github.io
